@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **hoangtienbmt2911@gmai.com**
 
-- ⚡ Fun fact **I think I'm Fu**
+- ⚡ Fun fact **I think I'm Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
